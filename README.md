@@ -12,3 +12,6 @@ In addition to my technical skills, I also pride myself on my critical thinking 
 I am confident that my data analytics skills and experience make me an ideal candidate for any data analyst role. I hope you find my portfolio to be informative and engaging, and I welcome any opportunity to discuss my qualifications further with you.
 
 Thank you for your time, I look forward to hearing from you soon.
+
+Whatsapp: +2349117505795
+IBITAYO GODSMIRACLE O
